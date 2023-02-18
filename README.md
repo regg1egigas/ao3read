@@ -10,3 +10,5 @@ __*TW for Rape, SA, Suicide, Self-Harm, Violence, Gore, Racism, Homophobia, Etc*
 *Hope you all have fun taking this quiz! Don't take it too seriously, this is all based on my personal opinions on fandom and fanfiction.*
 
 [![Lucio from Overwatch scratching a green holo record]!](https://media.tenor.com/nW9jF9fO5xAAAAAS/lucio-overwatch.gif)
+
+__1.  
