@@ -9,6 +9,30 @@ __*TW for Rape, SA, Suicide, Self-Harm, Violence, Gore, Racism, Homophobia, Etc*
 
 *Hope you all have fun taking this quiz! Don't take it too seriously, this is all based on my personal opinions on fandom and fanfiction.*
 
-[![Lucio from Overwatch scratching a green holo record]!](https://media.tenor.com/nW9jF9fO5xAAAAAS/lucio-overwatch.gif)
 
-__1.  
+
+<div align="left">
+
+__1.  Read the first fic of a tag__
+
+__2.  Read Fanfiction on AO3__
+
+__3.  Read Fanfiction on Wattpad__
+
+__4.  Read Fanfiction on Tumblr__
+
+__5. Read Fanfiction on Twitter__
+
+__6.  Read Fanfiction on Quotev
+
+__7.  Read Fanfiction on Fanfiction.net__
+
+__8.  Read Fanfiction on Livejournal__
+
+__9.  Written Fanfiction__
+
+__10.  Posted Fanfiction__
+
+__11.  Deleted Fanfiction__
+
+__12.  Have Followed an author on different social media sites besides the one where they post on__
