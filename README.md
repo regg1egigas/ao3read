@@ -9,6 +9,7 @@ __*TW for Rape, SA, Suicide, Self-Harm, Violence, Gore, Racism, Homophobia, Etc*
 
 *Hope you all have fun taking this quiz! Don't take it too seriously, this is all based on my personal opinions on fandom and fanfiction.*
 
+![4049411-dva2](https://user-images.githubusercontent.com/125678256/221620230-29fc77bd-cb5f-48d0-8d3a-fa4ff81fd92b.jpg)     ![overwatch-2-lucio-skin-snow-fox-see-through-walls-bug-glitch](https://user-images.githubusercontent.com/125678256/221620574-9bbf2c0b-c6ad-4a0c-b5d1-da25ef908a91.jpg)
 
 
 <div align="left">
