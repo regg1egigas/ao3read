@@ -24,7 +24,7 @@ __4.  Read Fanfiction on Tumblr__
 
 __5. Read Fanfiction on Twitter__
 
-__6.  Read Fanfiction on Quotev
+__6.  Read Fanfiction on Quotev__
 
 __7.  Read Fanfiction on Fanfiction.net__
 
